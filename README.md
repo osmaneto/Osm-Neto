@@ -4,6 +4,7 @@ Bem-vindo(a) ao meu perfil!
 
 📕Formação
 Técnico em Administração - Completo em 2022 - CEPHAS
+
 Cursando Gestão da Produção Industrial - Previsão de término em Ago/2027
 
 🛠Procurando Melhorar em:
